@@ -1,0 +1,1 @@
+# gso-git_verkefni
